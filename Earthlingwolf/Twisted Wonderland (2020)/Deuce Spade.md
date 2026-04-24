@@ -27,4 +27,4 @@
 
 ## Ji
 
-*   Weak Ti - favors meeting external standards over authenticity.
+*   Weak _Ti_ - favors meeting external standards over authenticity.
