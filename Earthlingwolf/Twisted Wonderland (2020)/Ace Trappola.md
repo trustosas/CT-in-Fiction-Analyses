@@ -33,4 +33,4 @@ modified: 2026-04-23T18:32:35+01:00
 
 ## Pi
 
-*   _SE (Ne+Si)_ - connects his talent for basketball to his spatio-temporal mapping skills.
+*   Connects his talent for basketball to his spatio-temporal mapping skills.
