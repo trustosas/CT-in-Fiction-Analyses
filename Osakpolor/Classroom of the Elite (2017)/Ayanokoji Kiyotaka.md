@@ -1,5 +1,5 @@
 
-After taking a look at Te and Fe Behaviour side-by-side, I'm of the opinion that he was inconsistently written, maybe 
+After taking a look at Te and Fe Behaviour side-by-side, you can see how he seems to blend Te with Fe.
 ###  Quadra
 
 ###  Function Dynamics
