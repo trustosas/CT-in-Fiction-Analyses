@@ -1,6 +1,4 @@
-# Deuce Spade
-
-## Je
+# Je
 
 *   Hardworking and determined - aims to become an honor student and police officer.
     
