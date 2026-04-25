@@ -2,9 +2,9 @@
 created: 2026-04-23T18:20:35+01:00
 modified: 2026-04-23T18:20:46+01:00
 ---
-## Je
+## Te
 
-*   Tyrant King (_Te_ Archetype).
+*   _Te_ Tyrant King.
     
 *   Obsession with rules, order, and control.
     
@@ -15,19 +15,19 @@ modified: 2026-04-23T18:20:46+01:00
 *   Uses external, tangible accomplishments and success to justify actions.
     
 
-## Pi
+## Si
 
 *   Encyclopedic memory, especially for academic subjects - memorized all 810 rules of Heartslabyul.
     
 *   Traditionalist - enforces all of Heartslabyul's rules regardless of how obscure or inconsequential (_Si_).
     
 
-## Pe
+## Ne
 
 *   Minor _Ne_ Escapism - has an unconscious tendency to use self-delusion as a defense against unbearable realities.
     
 
-## Ji
+## Fi
 
 *   Unreasonably high standards for himself and others - perfectionism.
     
