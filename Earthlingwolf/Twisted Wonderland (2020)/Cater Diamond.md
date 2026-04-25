@@ -21,3 +21,10 @@
 *   Socially savvy and manipulative (_Fe+Se Persuader_).
     
 *   Planning and leadership skills - functions as the unofficial second vice-housewarden of Heartslabyul.
+    
+
+## Ni
+
+*   Astrology
+    
+*   Ni _fatalism_ \- believes deeper connections should be avoided as separation is inevitable.
