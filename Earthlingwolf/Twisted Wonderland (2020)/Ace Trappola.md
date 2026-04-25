@@ -2,7 +2,7 @@
 created: 2026-04-23T18:32:22+01:00
 modified: 2026-04-23T18:32:35+01:00
 ---
-## Pe
+## Ne
 
 *   Irresponsible - always scheming for ways to avoid work or responsibilities - _Ne_ escapism.
     
@@ -17,18 +17,18 @@ modified: 2026-04-23T18:32:35+01:00
 *   Unique magic: Joker Snatch/Joker's Wild - allows him to steal another's unique magic.
     
 
-## Ji
+## Fi
 
 *   Independent - resistant to shaming and peer pressure, but easily swayed by appeal to his vanity.
     
 
-## Je
+## Te
 
 *   Outspoken and blunt - calls people out on their faults matter-of-factly (_Unseelie_) - no attempts at emotional handling.
     
 *   His best subject is enigmics, which is basically the magical equivalent of physics - good casual reasoning.
     
 
-## Pi
+## Si
 
 *   Connects his talent for basketball to his spatio-temporal mapping skills.
