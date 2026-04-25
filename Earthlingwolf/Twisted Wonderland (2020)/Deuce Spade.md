@@ -1,4 +1,4 @@
-## Je
+## Fe
 
 *   Hardworking and determined - aims to become an honor student and police officer.
     
@@ -11,18 +11,18 @@
 *   Unique magic: Bet The Limit/Double Down - stores all the damage he receives and unleashes it back on his opponent all at once.
     
 
-## Pi
+## Ni
 
-*   Weak _Si_ - bad at long-term planning or following multi-step processes.
+*   Weak _Ni_ - bad at long-term planning or following multi-step processes.
     
 
-## Pe
+## Se
 
 *   Former delinquent - focus on 'cool' and 'tough' aesthetics
     
 *   Blastcycling and track & field - _Se_ flow and competitiveness.
     
 
-## Ji
+## Ti
 
 *   Weak _Ti_ - favors meeting external standards over authenticity.
