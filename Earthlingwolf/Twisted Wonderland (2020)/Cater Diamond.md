@@ -1,4 +1,4 @@
-## Pe
+## Se
 
 *   Social media obsession - awareness and chasing of trends.
     
@@ -9,3 +9,8 @@
 *   Luxury and aesthetics - brand names and bright colors.
     
 *   Interests: music and skateboarding - member of the Pop Music Club (guitar).
+    
+
+## Ti
+
+*   Weak _Ti_ - favors shallow connections over autonomy.
