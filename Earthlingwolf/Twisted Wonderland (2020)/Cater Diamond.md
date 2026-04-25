@@ -14,3 +14,10 @@
 ## Ti
 
 *   Weak _Ti_ - favors shallow connections over autonomy.
+    
+
+## Fe
+
+*   Socially savvy and manipulative (_Fe+Se Persuader_).
+    
+*   Planning and leadership skills - functions as the unofficial second vice-housewarden of Heartslabyul.
