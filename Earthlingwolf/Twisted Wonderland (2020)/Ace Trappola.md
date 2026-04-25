@@ -2,8 +2,6 @@
 created: 2026-04-23T18:32:22+01:00
 modified: 2026-04-23T18:32:35+01:00
 ---
-# Ace Trappola
-
 ## Pe
 
 *   Irresponsible - always scheming for ways to avoid work or responsibilities - _Ne_ escapism.
