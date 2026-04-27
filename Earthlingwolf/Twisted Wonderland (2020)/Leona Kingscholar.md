@@ -23,3 +23,12 @@
 *   Nihilism - claims that putting effort into things is pointless as fate is unchanging (_Ti+Ni_).
     
 *   Picky eater.
+    
+
+## Se
+
+*   Athletics and competitiveness - spelldrive.
+    
+*   Cunning and opportunistic.
+    
+*   Selective laziness.
