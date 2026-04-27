@@ -27,4 +27,4 @@
 
 *   Astrology
     
-*   Ni _fatalism_ \- believes deeper connections should be avoided as separation is inevitable.
+*   Fatalism - believes deeper connections should be avoided as separation is inevitable.
