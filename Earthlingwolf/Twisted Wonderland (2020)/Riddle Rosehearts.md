@@ -6,6 +6,8 @@ modified: 2026-04-23T18:20:46+01:00
 
 *   _Te_ Tyrant King.
     
+*   Housewarden of Heartslabyul - leader of the Equestrian club.
+    
 *   Obsession with rules, order, and control.
     
 *   Authoritarian, strict, and disciplined.
