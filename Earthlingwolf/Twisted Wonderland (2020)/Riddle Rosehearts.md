@@ -4,7 +4,7 @@ modified: 2026-04-23T18:20:46+01:00
 ---
 ## Te
 
-*   _Te_ Tyrant King.
+*   Tyrant King.
     
 *   Housewarden of Heartslabyul - leader of the Equestrian club.
     
@@ -21,7 +21,7 @@ modified: 2026-04-23T18:20:46+01:00
 
 *   Encyclopedic memory, especially for academic subjects - memorized all 810 rules of Heartslabyul.
     
-*   Traditionalist - enforces all of Heartslabyul's rules regardless of how obscure or inconsequential (_Si_).
+*   Traditionalist - enforces all of Heartslabyul's rules regardless of how obscure or inconsequential.
     
 
 ## Ne
