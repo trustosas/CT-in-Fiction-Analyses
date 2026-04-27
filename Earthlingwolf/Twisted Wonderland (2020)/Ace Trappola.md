@@ -24,7 +24,7 @@ modified: 2026-04-23T18:32:35+01:00
 
 ## Te
 
-*   Outspoken and blunt - calls people out on their faults matter-of-factly (_Unseelie_) - no attempts at emotional handling.
+*   Outspoken and blunt - calls people out on their faults matter-of-factly - no attempts at emotional handling.
     
 *   His best subject is enigmics, which is basically the magical equivalent of physics - good casual reasoning.
     
