@@ -4,11 +4,11 @@ modified: 2026-04-23T18:32:35+01:00
 ---
 ## Ne
 
-*   Irresponsible - always scheming for ways to avoid work or responsibilities - _Ne_ escapism.
+*   Irresponsible - always scheming for ways to avoid work or responsibilities - escapism.
     
 *   Lazy - often enters situations on a whim, only to give up or change his mind once sustained effort is demanded.
     
-*   Interests: Basketball and magic tricks, especially card manipulation.
+*   Interests: magic tricks, especially card manipulation - member of the Basketball Club.
     
 *   Jokes, banter, and humorous imitations.
     
