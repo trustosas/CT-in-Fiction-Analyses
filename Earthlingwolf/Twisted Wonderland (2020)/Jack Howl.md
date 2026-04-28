@@ -14,7 +14,8 @@
 
 ## Se
 
-TBA
+*   Athletics and competitiveness - member of the Track & Field Club - spelldrive (basically quidditch) and winter sports.
+    
 
 ## Ti
 
