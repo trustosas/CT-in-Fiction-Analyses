@@ -9,7 +9,8 @@
 
 ## Ni
 
-TBA
+*   Weak Ni - no major examples.
+    
 
 ## Se
 
