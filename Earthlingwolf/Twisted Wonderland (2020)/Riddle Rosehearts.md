@@ -4,7 +4,7 @@ modified: 2026-04-23T18:20:46+01:00
 ---
 ## Te
 
-*   Tyrant King.
+*   Tyrant King - "The Rose-Red Tyrant".
     
 *   Housewarden of Heartslabyul - leader of the Equestrian club.
     
