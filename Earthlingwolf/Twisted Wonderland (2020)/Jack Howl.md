@@ -6,6 +6,8 @@
     
 *   Willpower and motivation - believes that anything can be achieved through hard work - unbreakable spirit.
     
+*   Hierarchy - respects the pecking order, however, refuses to follow those he deems weak or immoral.
+    
 
 ## Ni
 
@@ -19,4 +21,8 @@
 
 ## Ti
 
-TBA
+*   Idealistic - has very strict personal principles and standards - "competition must be fair to be meaningful, a victory won through cheating, or shortcuts is unacceptable".
+    
+*   Stubbornness - inflexible and narrow-minded - refuses to bend his principles regardless of practicality
+    
+*   Independent - greatly values his autonomy - self-reliant and solitary.
