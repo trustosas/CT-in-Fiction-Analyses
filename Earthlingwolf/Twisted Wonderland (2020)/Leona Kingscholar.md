@@ -11,11 +11,13 @@
 
 ## Fe
 
-*   Adversary.
+*   Adversary - "The Usurper from the Wilds".
     
 *   Ambitions of kingship - yearns for respect, adoration, and recognition.
     
 *   Housewarden of Savanaclaw - leader of the Spelldrive Club (basically quidditch).
+    
+*   Sectarian - skilled at rallying people together and efficient delegation.
     
 
 ## Ti
