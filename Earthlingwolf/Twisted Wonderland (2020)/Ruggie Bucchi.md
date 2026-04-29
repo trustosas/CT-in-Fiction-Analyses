@@ -16,8 +16,13 @@
 
 ## Te
 
-TBA
+*   The unofficial vice-housewarden of Savanaclaw.
+    
+*   Diligent - lists "working part-time jobs" as a hobby.
+    
+*   Pragmatic - values results over principles -"pride doesn't fill the stomach".
+    
 
 ## Ni
 
-TBA
+*   Long-term thinking.
