@@ -1,6 +1,6 @@
 ## Te
 
-*   Tyrant King - "the Merchant from the Depths".
+*   Tyrant King - "The Merchant from the Depths".
     
 *   Housewarden of Octavinnelle.
     
@@ -11,7 +11,8 @@
 
 ## Ni
 
-TBA
+*   Caution and foresight - always plan multiple steps ahead - doesn't act until the odds are in his favor - heavily dislikes relying on luck.
+    
 
 ## Se
 
