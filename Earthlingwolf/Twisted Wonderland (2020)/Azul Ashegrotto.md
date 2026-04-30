@@ -1,6 +1,13 @@
 ## Te
 
-TBA
+*   Tyrant King - "the Merchant from the Depths".
+    
+*   Housewarden of Octavinnelle.
+    
+*   Business-minded and strategic.
+    
+*   Success and accomplishment-focused
+    
 
 ## Ni
 
