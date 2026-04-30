@@ -16,11 +16,13 @@
 
 ## Se
 
-*   Trickster - cunning dealmaker.
+*   Trickster.
     
 *   Member of the Board Games Club - prefers strategy-based games over luck-based ones.
+    
+*   Cunning and competitive.
     
 
 ## Fi
 
-TBA
+*   Weak _Fi_ - his inability to accept himself as he is is the focus of his character arc - vain and spiteful.
