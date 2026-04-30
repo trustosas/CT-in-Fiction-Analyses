@@ -2,7 +2,7 @@
 
 *   Tyrant King - "The Merchant from the Depths".
     
-*   Housewarden of Octavinnelle.
+*   Housewarden of Octavinnelle - owner and manager of the Monstro Lounge.
     
 *   Business-minded and hard-working.
     
@@ -16,7 +16,10 @@
 
 ## Se
 
-TBA
+*   Trickster - cunning dealmaker.
+    
+*   Member of the Board Games Club - prefers strategy-based games over luck-based ones.
+    
 
 ## Fi
 
