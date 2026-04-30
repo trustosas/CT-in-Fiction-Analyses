@@ -4,9 +4,9 @@
     
 *   Housewarden of Octavinnelle.
     
-*   Business-minded and strategic.
+*   Business-minded and hard-working.
     
-*   Success and accomplishment-focused
+*   Success-driven and strategic.
     
 
 ## Ni
