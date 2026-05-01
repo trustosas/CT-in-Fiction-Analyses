@@ -23,4 +23,6 @@
 
 ## Fe
 
-TBA
+*   Vice-housewarden of Octavinelle.
+    
+*   Manipulative - _Fe+Se_ Persuader.
