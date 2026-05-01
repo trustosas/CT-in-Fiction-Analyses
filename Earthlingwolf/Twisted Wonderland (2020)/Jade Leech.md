@@ -4,7 +4,7 @@
     
 *   Calculated persona - the perfect right-hand man - polite, composed, obedient, and competent.
     
-*   Extremely picky and meticulous when attending to things of personal significance.
+*   Stubborn and meticulous - very demanding in regard to things of personal significance.
     
 
 ## Se
