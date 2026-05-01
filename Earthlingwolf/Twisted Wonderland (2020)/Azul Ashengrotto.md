@@ -13,6 +13,8 @@
 
 *   Caution and foresight - always plan multiple steps ahead - doesn't act until the odds are in his favor - heavily dislikes relying on luck.
     
+*   Volumetric knowledge - contract details and blackmail material.
+    
 
 ## Se
 
