@@ -11,7 +11,7 @@
 
 *   Trickster.
     
-*   Mainly motivated by personal entertainment - dislikes predictability and order.
+*   Mainly motivated by personal entertainment - dislikes predictability and harmony.
     
 
 ## Ni
