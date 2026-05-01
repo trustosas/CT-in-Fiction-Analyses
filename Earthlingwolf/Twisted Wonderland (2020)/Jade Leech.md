@@ -9,7 +9,10 @@
 
 ## Se
 
-TBA
+*   Trickster.
+    
+*   Mainly motivated by personal entertainment - dislikes predictability and order.
+    
 
 ## Ni
 
