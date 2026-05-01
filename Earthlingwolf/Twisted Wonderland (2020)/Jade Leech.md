@@ -16,7 +16,8 @@
 
 ## Ni
 
-TBA
+*   Volumetric information and long-term thinking.
+    
 
 ## Fe
 
