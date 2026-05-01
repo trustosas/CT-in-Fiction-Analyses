@@ -13,6 +13,8 @@
     
 *   Mainly motivated by personal entertainment - dislikes predictability and harmony.
     
+*   Interest: mountaineering, camping, foraging, and cooking.
+    
 
 ## Ni
 
