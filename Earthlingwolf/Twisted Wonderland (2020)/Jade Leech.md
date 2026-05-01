@@ -18,7 +18,9 @@
 
 ## Ni
 
-*   Volumetric information and long-term thinking.
+*   Volumetric information: mountain facts, contract details, and blackmail material.
+    
+*   Long-term thinking.
     
 
 ## Fe
