@@ -23,4 +23,4 @@
 
 ## Si
 
-TBA
+*   Weak _Si_ - impulsive and impatient.
