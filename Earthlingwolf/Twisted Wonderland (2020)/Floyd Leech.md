@@ -11,7 +11,10 @@
 
 ## Fi
 
-TBA
+*   Unbridled expression.
+    
+*   Exclusively refers to others (besides Azul and Jade) by personalized sea creature-based nicknames - _Ne_ creative association + _Fi_ animated essence reading.
+    
 
 ## Te
 
