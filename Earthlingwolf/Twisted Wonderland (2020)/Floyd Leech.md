@@ -18,7 +18,8 @@
 
 ## Te
 
-TBA
+*   Weak _Te_ - although he may occasionally work despite boredom or follow Azul's commands as long as he believes the result will be entertaining enough.
+    
 
 ## Si
 
