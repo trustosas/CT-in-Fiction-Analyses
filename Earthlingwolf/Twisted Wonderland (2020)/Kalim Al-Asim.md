@@ -18,8 +18,9 @@
 
 ## Te
 
-TBA
+*   Housewarden of Scarabia - although Jamil does the vast majority of the executive work.
+    
 
 ## Si
 
-TBA
+*   Weak Si - impulsive and forgetful.
