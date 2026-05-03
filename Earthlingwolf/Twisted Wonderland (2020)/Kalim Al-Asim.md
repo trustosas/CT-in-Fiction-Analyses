@@ -11,7 +11,10 @@
 
 ## Fi
 
-TBA
+*   Candid self-expression - straightforward and sincere - doesn't take into account others' opinions or social mores before acting.
+    
+*   Magnanimous and idealistic - always gives others the benefit of the doubt - always tries looking at the positive side.
+    
 
 ## Te
 
