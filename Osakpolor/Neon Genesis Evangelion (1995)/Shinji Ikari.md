@@ -36,7 +36,7 @@
 
 ### Ji+Pe
 
-- **Circumstantial Register:** He prefers a linguistic register that focuses on "strongly connected circumstances"—prioritizing the setup and conditions of a situation over outcome-oriented statements. (Ji+Pe)
+- **Circumstantial Register:** He prefers a linguistic register that focuses on context—prioritizing the setup and conditions of a situation over outcome-oriented statements. (Ji+Pe)
     
 - **Hesitant Re-exploration:** He frequently employs hesitant interjections and vocabulary shifts that reflect a cycle of essence-delineation and re-exploration of the environment. (Ji+Pe)
     
