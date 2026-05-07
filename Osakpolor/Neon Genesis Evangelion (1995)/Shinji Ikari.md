@@ -24,7 +24,7 @@
     
 - **Domestic Utility:** He utilizes domestic maintenance—such as cooking and cleaning—to secure his social position and provide interpersonal utility within a shared residence. (Si+Fe)
     
-- **Social Mimicry/Adaptation:** He imitates or accepts the rhythms of others to navigate social dynamics, described as a "prosperous evolution" of the domestic routine. (Si+Fe)
+- **Social Mimicry/Adaptation:** He imitates or accepts the rhythms of others to navigate social dynamics, described residentially as a "prosperous evolution" of the domestic routine. (Si+Fe)
 
 ### Pi
 
