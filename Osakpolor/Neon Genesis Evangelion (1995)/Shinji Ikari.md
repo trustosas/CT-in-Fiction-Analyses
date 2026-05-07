@@ -1,8 +1,6 @@
 ### Pe
 
-- **Social Mimicry:** The subject demonstrates an ability to synchronize physical movements with others (such as during training regimens) as a substitute for direct communication. (Si-Ne)
-    
-- **Physical Harmony:** In combat scenarios, he exhibits total physical harmony with partners, relying on rhythmic timing to achieve objectives. (Si-Ne)
+- **Social Mimicry:** He demonstrates an ability to synchronize physical movements with others (such as during training regimens) as a substitute for direct communication. (Si-Ne)
     
 - **Environmental Sensitivity:** His vocabulary and linguistic register shift depending on his immediate physical environment, particularly when inside the Evangelion cockpit. (Ji+Pe)
 
