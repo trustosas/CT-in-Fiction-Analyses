@@ -51,7 +51,7 @@
 
 ### Je+Pi
 
-- **Coordinated Implementation:** He integrates domestic utility (cooking/cleaning) into a dependable, unwavering routine to manage his social territory and standing. (Si+Fe, Pi)
+- **Coordinated Implementation:** He integrates domestic utility (cooking/cleaning) into a dependable, unwavering routine to manage his social territory and standing. (Fe+Si)
 
 ### Ji+Pi
 
