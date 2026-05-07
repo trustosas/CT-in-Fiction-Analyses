@@ -52,9 +52,6 @@
 ### Je+Pi
 
 - **Coordinated Implementation:** He integrates domestic utility (cooking/cleaning) into a dependable, unwavering routine to manage his social territory and standing. (Si+Fe, Pi)
-    
-- **Mission Coordination:** His ability to synchronize with a partner's rhythmic movements represents the use of a holistic map to enable successful causal action. (Si-Ne, Pi)
-    
 
 ### Ji+Pi
 
