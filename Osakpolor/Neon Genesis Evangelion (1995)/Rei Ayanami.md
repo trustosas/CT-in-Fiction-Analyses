@@ -2,9 +2,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 
 ### Delta
 
-- 
-    
-- Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries.
+- Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
 
 ### Pe
 
@@ -47,7 +45,6 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 - Precise adherence to Japanese honorific systems, such as calling Gendo "Commander Ikari" and Shinji "Ikari-kun".
 
 ### Ji+Pe
-
 *No significant evidence.*
 
 ### Je+Pi
