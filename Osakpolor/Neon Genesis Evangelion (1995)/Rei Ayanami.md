@@ -5,11 +5,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 - Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
 
 ### Pe
-
-- There is no documented evidence for Pe (Extroverted Perception) in the provided annotations.
-    
-- Her "restricted verbal output" and "consistently low" verbosity contrast with the "Short Phrases" and "Casual language" typically associated with the Pe energetic.
-
+*No significant evidence.*
 ### Ji
 
 - Characterized by a high degree of linguistic economy and restricted verbal output.
@@ -28,7 +24,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 
 ### Je
 
-- Vocabulary incorporates technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences).
+- Vocabulary encompasses technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences).
     
 - Communication is characterized by extremely high directness and a total lack of rhetorical padding.
     
@@ -38,11 +34,11 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 
 ### Pi
 
-- Shows a consistent preference for concrete, literal information over abstract or metaphorical constructs.
+- Shows a consistent preference for concrete, literal information over abstract or metaphorical constructs. (Si)
     
-- Interprets inquiries and instructions at face value.
+- Interprets inquiries and instructions at face value. (Si)
     
-- Precise adherence to Japanese honorific systems, such as calling Gendo "Commander Ikari" and Shinji "Ikari-kun".
+- Precise adherence to Japanese honorific systems, such as calling Gendo "Commander Ikari" and Shinji "Ikari-kun". (Si)
 
 ### Ji+Pe
 *No significant evidence.*
