@@ -29,8 +29,6 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 - Communication is characterized by extremely high directness and a total lack of rhetorical padding.
     
 - Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety.
-    
-- Employs a consistently formal and neutral register.
 
 ### Pi
 
@@ -49,7 +47,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
     
 - Precise and formal adherence to social and command hierarchies.
     
-- The walls of her apartment are inscribed with scientific data, such as quarks and quantum particle spin, reflecting a territory mapped by technical causalities.
+- The walls of her apartment are inscribed with scientific data, such as quarks and quantum particle spin, reflecting a territory mapped by technical causalities. (Te+Si)
 
 ### Ji+Pi
 
@@ -57,7 +55,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 	
 - The subject's verbal output is directly synchronized with her internal processing, showing no documented distinction between what she says and what she perceives. (Fi+Si)
     
-- Maintains Gendo Ikari's glasses in a protective case, attributing them sentimental value and clutching them during periods of physical recovery.
+- Maintains Gendo Ikari's glasses in a protective case, attributing them sentimental value and clutching them during periods of physical recovery. ()
     
 - Rejects Gendo and breaks his glasses following a specific internal realization.
 
