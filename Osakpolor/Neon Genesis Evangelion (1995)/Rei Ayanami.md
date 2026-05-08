@@ -3,6 +3,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 ### Delta
 
 - Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
+- She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation. (Fi)
 
 ### Pe
 *No significant evidence.*
@@ -16,19 +17,17 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
     
 - Notable lack of adherence to social norms regarding physical modesty and privacy.
     
-- Living furnishings are limited to the "bare minimum" required for survival.
+- Living furnishings are limited to the "bare minimum" required for survival. 
     
 - Humor is documented as non-existent, with no use of sarcasm or irony.
-	
-- She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation. (Fi)
 
 ### Je
 
-- Vocabulary encompasses technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences).
+- Vocabulary encompasses technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences). (Te)
     
-- Communication is characterized by extremely high directness and a total lack of rhetorical padding.
+- Communication is characterized by extremely high directness and a total lack of rhetorical padding. (Te)
     
-- Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety.
+- Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety. (Te)
 
 ### Pi
 
@@ -55,9 +54,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 	
 - The subject's verbal output is directly synchronized with her internal processing, showing no documented distinction between what she says and what she perceives. (Fi+Si)
     
-- Maintains Gendo Ikari's glasses in a protective case, attributing them sentimental value and clutching them during periods of physical recovery. ()
-    
-- Rejects Gendo and breaks his glasses following a specific internal realization.
+- Maintains Gendo Ikari's glasses in a protective case, attributing them sentimental value and clutching them during periods of physical recovery. (Fi+Si).
 
 ### Je+Pe
 _No significant evidence._
