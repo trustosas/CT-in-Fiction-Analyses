@@ -11,7 +11,14 @@
 
 ## Fe
 
-TBA
+*   Vice-housewarden of Scarabia.
+    
+*   Coaching and mentorship.
+    
+*   Glory and power-hungry.
+    
+*   Manipulative and two-faced.
+    
 
 ## Ti
 
