@@ -49,9 +49,6 @@
 ### Ji+Pi
 
 - **Apathetic Withdrawal:** During periods of social isolation, he falls into a state of "apathy" and "indifference," often staying in bed or listening to his SDAT player for extended periods without external engagement. (Ji, Pi)
-    
-- **Internal Interrogation:** His resolution involves a period of intense internal interrogation and abstract visualization to reach a conclusion about his continued individual existence. (Ji, Pi)
-    
 
 ### Je+Pe
 
