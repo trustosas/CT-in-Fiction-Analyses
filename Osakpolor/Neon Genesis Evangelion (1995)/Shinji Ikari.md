@@ -14,7 +14,7 @@
     
 - **Physical and Psychological Barriers:** He consistently positions himself on the periphery of group interactions and uses an SDAT player and headphones to create a barrier between himself and his environment. (Ji)
 
--  **"No-Choice" Philosophy:** He relies heavily on external instructions, overwhelming necessity, or a "no-choice" framework to navigate high-stakes obstacles. (Pi)
+-  **"No-Choice" Philosophy:** He relies heavily on external instructions, overwhelming necessity, or a "no-choice" framework to navigate high-stakes obstacles. (Ji)
     
 - **Clarifying First Principles:** His initial interactions often involve asking clarifying questions about his role rather than expressing internal states, seeking to define his ontological position within a system. (Ti)
 
