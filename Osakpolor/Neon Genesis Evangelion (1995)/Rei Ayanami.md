@@ -1,5 +1,3 @@
-Based on the annotations provided in the report for Rei Ayanami and the definitions of the energetic functions and pairs, the template is populated as follows:
-
 ### Delta
 
 - Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
