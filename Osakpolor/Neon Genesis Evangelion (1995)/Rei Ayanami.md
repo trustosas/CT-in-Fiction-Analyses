@@ -26,11 +26,11 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
     
 - Humor is documented as non-existent, with no use of sarcasm or irony.
 	
-- 
+- She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation. (Fi)
 
 ### Je
 
-- Vocabulary frequently incorporates technical and academic terminology (Genetics, Physics, Bio-sciences).
+- Vocabulary incorporates technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences).
     
 - Communication is characterized by extremely high directness and a total lack of rhetorical padding.
     
@@ -48,7 +48,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 
 ### Ji+Pe
 
-- No documented evidence for the Ji+Pe (Revision) pair is found in the provided annotations.
+*No significant evidence.*
 
 ### Je+Pi
 
