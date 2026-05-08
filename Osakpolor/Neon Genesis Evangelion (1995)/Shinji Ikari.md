@@ -13,6 +13,8 @@
 - **Internalized Mantras:** He utilizes rhythmic, low-volume verbal repetition ("I mustn't run away") as a means to override his internal impulses and force physical compliance with external demands. (Ji)
     
 - **Physical and Psychological Barriers:** He consistently positions himself on the periphery of group interactions and uses an SDAT player and headphones to create a barrier between himself and his environment. (Ji)
+
+-  **"No-Choice" Philosophy:** He relies heavily on external instructions, overwhelming necessity, or a "no-choice" framework to navigate high-stakes obstacles. (Pi)
     
 - **Clarifying First Principles:** His initial interactions often involve asking clarifying questions about his role rather than expressing internal states, seeking to define his ontological position within a system. (Ti)
 
@@ -26,8 +28,6 @@
 
 ### Pi
 
-- **"No-Choice" Philosophy:** He relies heavily on external instructions, overwhelming necessity, or a "no-choice" framework to navigate high-stakes obstacles. (Pi)
-    
 - **Routine and Steadiness:** He adheres to a strict morning routine and focuses on repetitive domestic tasks to maintain environmental stability. (Pi)
     
 - **Tactical Precision:** When provided with clear objectives, he displays a high capacity for precision and technical competency, such as in high-precision sniping. (Si)
