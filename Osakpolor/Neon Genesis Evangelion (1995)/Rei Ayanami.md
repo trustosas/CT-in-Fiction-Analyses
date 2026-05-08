@@ -2,7 +2,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 
 ### Delta
 
-- She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation. (F)
+- 
     
 - Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries.
 
@@ -25,6 +25,8 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 - Living furnishings are limited to the "bare minimum" required for survival.
     
 - Humor is documented as non-existent, with no use of sarcasm or irony.
+	
+- 
 
 ### Je
 
@@ -59,7 +61,7 @@ Based on the annotations provided in the report for Rei Ayanami and the definiti
 ### Ji+Pi
 
 - Her internal realization regarding "Bonds" (_Kizuna_) identifies a specific, internal hierarchical list of individuals.
-- 
+	
 - The subject's verbal output is directly synchronized with her internal processing, showing no documented distinction between what she says and what she perceives. (Fi+Si)
     
 - Maintains Gendo Ikari's glasses in a protective case, attributing them sentimental value and clutching them during periods of physical recovery.
