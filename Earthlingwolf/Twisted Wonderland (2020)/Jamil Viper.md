@@ -22,8 +22,11 @@
 
 ## Ti
 
-TBA
+*   Weak _Ti_ - no major examples.
+    
 
 ## Se
 
-TBA
+*   Interests: cooking and dancing - member of the Basketball Club.
+    
+*   Trickster - cunning and resourceful.
