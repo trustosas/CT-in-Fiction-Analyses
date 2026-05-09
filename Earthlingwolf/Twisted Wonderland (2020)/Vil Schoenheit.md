@@ -13,7 +13,7 @@
 
 ## Se
 
-*   Aesthetics and competitiveness.
+*   Aesthetics and fashion.
     
 *   Plasticity - acquires any skill demanded for the job, be it singing, dancing, martial arts, or fishing.
     
