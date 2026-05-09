@@ -23,4 +23,10 @@
 
 ## Fe
 
-TBA
+*   King - "the Beautiful Tyrant".
+    
+*   Housewarden of Pomefiore.
+    
+*   Film directing and potionology (chemistry) - makes homebrew cosmetics.
+    
+*   Coaching and willpower - respects those who put in strenuous effort towards their goals - pushes his charges towards self-improvement.
