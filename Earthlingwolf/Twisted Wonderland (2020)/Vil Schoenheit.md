@@ -13,7 +13,7 @@
 
 ## Se
 
-*   Acting, modeling, fashion, singing, dancing, and martial arts.
+*   Acting and aesthetics - modeling, fashion, and makeup.
     
 
 ## Ni
