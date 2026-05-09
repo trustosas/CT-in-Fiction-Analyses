@@ -13,14 +13,13 @@
 
 ## Se
 
-*   Aesthetics and fashion.
-    
-*   Plasticity - acquires any skill demanded for the job, be it singing, dancing, martial arts, or fishing.
+*   Acting, modeling, fashion, singing, dancing, and martial arts.
     
 
 ## Ni
 
-TBA
+*   Weak _Ni_ - no major examples.
+    
 
 ## Fe
 
