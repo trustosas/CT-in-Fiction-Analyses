@@ -1,10 +1,12 @@
 ### Delta
 
 - Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
-- She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation. (Fi)
+- She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation.
+- The walls of her apartment are inscribed with scientific data, such as quarks and quantum particle spins. (Delta Eccentricity)
 
 ### Pe
 *No significant evidence.*
+
 ### Ji
 
 - Characterized by a high degree of linguistic economy and restricted verbal output.
@@ -43,8 +45,6 @@
 - Her decision-making process is predominantly governed by institutional imperatives and a perception of her own expendability.
     
 - Precise and formal adherence to social and command hierarchies.
-    
-- The walls of her apartment are inscribed with scientific data, such as quarks and quantum particle spin, reflecting a territory mapped by technical causalities. (Te+Si)
 
 ### Ji+Pi
 
