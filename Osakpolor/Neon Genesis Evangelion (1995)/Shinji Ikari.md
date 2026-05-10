@@ -17,7 +17,7 @@
 
 ### Je
 
-- His reluctant return to combat is typically triggered by a sense of responsibility toward others or exposure to external necessity. (Fe)
+- His reluctant return to combat is typically triggered by a sense of responsibility toward others or exposure to external necessity. (Low Fe use)
     
 - He utilizes domestic maintenance—such as cooking and cleaning—to secure his social position and provide interpersonal utility within a shared residence. (Si+Fe)
     
