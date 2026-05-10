@@ -37,7 +37,7 @@
     
 - Communication is characterized by extremely high directness and a total lack of rhetorical padding. (Te)
     
-- Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety. (Self registered as Abiotic (T) ontologically, and Mechanically treated as such)
+- Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety. (Self registered as abiotic (T), and treated as such; an over-generalisation of the Te: I-It Ontology)
 
 ### Ji+Pe
 *No significant evidence.*
