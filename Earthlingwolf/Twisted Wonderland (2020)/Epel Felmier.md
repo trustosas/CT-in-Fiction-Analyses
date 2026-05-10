@@ -14,7 +14,8 @@
 
 ## Fe
 
-TBA
+*   Adherence to traditional gender norms - dislikes his feminine appearance and delicate frame - is fixated on the idea of becoming "strong" in a traditionally masculine way.
+    
 
 ## Ni
 
