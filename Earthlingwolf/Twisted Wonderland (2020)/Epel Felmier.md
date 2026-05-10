@@ -19,4 +19,4 @@
 
 ## Ni
 
-TBA
+*   Strong cultural connection and pride for his hometown.
