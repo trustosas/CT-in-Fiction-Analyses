@@ -2,14 +2,15 @@
 
 *   Trickster.
     
-*   Boldness and volition.
+*   Boldness and rebellion - vitality and volition.
     
 *   Member of the Spelldrive Club (basically quidditch) - athletics and competitiveness.
     
 
 ## Ti
 
-TBA
+*   Strong sense of identity - refuses to be changed by others.
+    
 
 ## Fe
 
