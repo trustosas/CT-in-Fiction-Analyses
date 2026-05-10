@@ -1,6 +1,3 @@
-### Pe
-*No significant evidence.*
-
 ### Ji
 
 - His speech is characterized by unassertive, reactive patterns, frequently utilizing interrogatives, hesitant interjections, and minimal word counts. (Ji)
@@ -15,13 +12,8 @@
     
 - His initial interactions often involve asking clarifying questions about his role rather than expressing internal states, seeking to define his ontological position within a system. (Ti)
 
-### Je
-
-- His reluctant return to combat is typically triggered by a sense of responsibility toward others or exposure to external necessity. (Low Fe use)
-    
-- He utilizes domestic maintenance—such as cooking and cleaning—to secure his social position and provide interpersonal utility within a shared residence. (Si+Fe)
-    
-- He imitates or accepts the rhythms of others to navigate social dynamics, described residentially as a "prosperous evolution" of the domestic routine. (Si+Fe)
+### Pe
+*No significant evidence.*
 
 ### Pi
 
@@ -30,6 +22,14 @@
 - When provided with clear objectives, he displays a high capacity for precision and technical competency, such as in high-precision sniping. (Si)
     
 - His withdrawal behaviors follow specific geographic and chronological sequences (e.g., riding the loop line for an entire day). (Si)
+
+### Je
+
+- His reluctant return to combat is typically triggered by a sense of responsibility toward others or exposure to external necessity. (Low Fe use)
+    
+- He utilizes domestic maintenance—such as cooking and cleaning—to secure his social position and provide interpersonal utility within a shared residence. (Si+Fe)
+    
+- He imitates or accepts the rhythms of others to navigate social dynamics, described residentially as a "prosperous evolution" of the domestic routine. (Si+Fe)
 
 ### Ji+Pe
 
