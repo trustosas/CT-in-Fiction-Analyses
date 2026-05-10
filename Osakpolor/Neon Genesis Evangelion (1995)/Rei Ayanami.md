@@ -1,6 +1,6 @@
 ### Delta
 
-- Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
+- Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi & Ne-Si)
 	
 - She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation.
 	
