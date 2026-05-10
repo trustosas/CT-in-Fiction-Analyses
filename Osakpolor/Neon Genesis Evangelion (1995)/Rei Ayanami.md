@@ -1,11 +1,10 @@
 ### Delta
 
 - Her internal monologue during the Episode 14 cross-compatibility test weaves sensory-based concrete nouns with complex metaphysical queries. (Fi-Te & Ne-Si)
+	
 - She does not engage in social posturing or retaliation; for example, she offers advice to Asuka Langley Sohryu ("The Eva has a heart...") instead of reacting to provocation.
+	
 - The walls of her apartment are inscribed with scientific data, such as quarks and quantum particle spins. (Delta Eccentricity)
-
-### Pe
-*No significant evidence.*
 
 ### Ji
 
@@ -21,13 +20,8 @@
     
 - Humor is documented as non-existent, with no use of sarcasm or irony.
 
-### Je
-
-- Vocabulary encompasses technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences). (Te)
-    
-- Communication is characterized by extremely high directness and a total lack of rhetorical padding. (Te)
-    
-- Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety. (Te: I-It Ontology overextended to self)
+### Pe
+*No significant evidence.*
 
 ### Pi
 
@@ -36,6 +30,14 @@
 - Interprets inquiries and instructions at face value. (Si)
     
 - Precise adherence to Japanese honorific systems, such as calling Gendo "Commander Ikari" and Shinji "Ikari-kun". (Si)
+
+### Je
+
+- Vocabulary encompasses technical and academic terminology, although not used in everyday conversation. (Genetics, Physics, Bio-sciences). (Te)
+    
+- Communication is characterized by extremely high directness and a total lack of rhetorical padding. (Te)
+    
+- Displays a willingness to utilize herself as a "terminal resource," prioritizing mission success and the survival of others over her own safety. (Te: Mechanics; Self registered as Abiotic (T) ontologically)
 
 ### Ji+Pe
 *No significant evidence.*
