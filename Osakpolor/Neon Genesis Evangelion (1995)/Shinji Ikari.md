@@ -1,8 +1,5 @@
 ### Pe
-
-- He demonstrates an ability to synchronize physical movements with others (such as during training regimens) as a substitute for direct communication. (Si-Ne)
-    
-- His vocabulary and linguistic register shift depending on his immediate physical environment, particularly when inside the Evangelion cockpit. (Ji+Pe)
+*No significant evidence.*
 
 ### Ji
 
@@ -13,7 +10,7 @@
 - He utilizes rhythmic, low-volume verbal repetition ("I mustn't run away") as a means to override his internal impulses and force physical compliance with external demands. (Ji)
     
 - He consistently positions himself on the periphery of group interactions and uses an SDAT player and headphones to create a barrier between himself and his environment. (Ji)
-
+	
 -  He relies heavily on external instructions, overwhelming necessity, or a "no-choice" framework to navigate high-stakes obstacles. (Ji)
     
 - His initial interactions often involve asking clarifying questions about his role rather than expressing internal states, seeking to define his ontological position within a system. (Ti)
@@ -37,6 +34,8 @@
 ### Ji+Pe
 
 - He prefers a linguistic register that focuses on context—prioritizing the setup and conditions of a situation over outcome-oriented statements. (Ji+Pe)
+	
+- His vocabulary and linguistic register shift depending on his immediate physical environment, particularly when inside the Evangelion cockpit. (Ji+Pe)
     
 - He frequently employs hesitant interjections and vocabulary shifts that reflect a cycle of essence-delineation and re-exploration of the environment. (Ji+Pe)
     
