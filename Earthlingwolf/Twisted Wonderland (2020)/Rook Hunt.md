@@ -9,7 +9,12 @@
 
 ## Fi
 
-TBA
+*   Idealism - beauty, his interpretation focuses on both inner and outer beauty.
+    
+*   _Seelie_ - sees what's "beautiful" in everything, including imperfection.
+    
+*   Candid - gives both compliments and criticism earnestly and with little social awareness.
+    
 
 ## Te
 
