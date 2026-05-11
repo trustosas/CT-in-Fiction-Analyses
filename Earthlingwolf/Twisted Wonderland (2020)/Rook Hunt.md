@@ -18,7 +18,10 @@
 
 ## Te
 
-TBA
+*   Vice-housewarden of Pomefiore.
+    
+*   Member of the Science Club.
+    
 
 ## Ni
 
