@@ -25,4 +25,6 @@
 
 ## Ni
 
-TBA
+*   Advice and guidance.
+    
+*   Volumetric knowledge.
