@@ -25,4 +25,8 @@
 
 ## Te
 
-TBA
+*   Housewarden of Ignihyde - future director of S.T.Y.X - "the Watchman of the Underworld".
+    
+*   Programming and engineering - _Te+Ne_ Inventor.
+    
+*   Bluntness and avalanching speech.
