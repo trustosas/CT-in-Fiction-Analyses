@@ -4,14 +4,19 @@
     
 *   Pickiness and perfectionism - only in areas of personal significance.
     
-*   Radiant - sullen and depressed.
+*   Radianting - sullen and depressed.
     
 *   Identity and individualism.
     
 
 ## Ne
 
-TBA
+*   Interests: gaming, anime, and idols - member of the Board Game Club.
+    
+*   Tinkering.
+    
+*   Casual language - constant use of internet/gamer slang.
+    
 
 ## Si
 
