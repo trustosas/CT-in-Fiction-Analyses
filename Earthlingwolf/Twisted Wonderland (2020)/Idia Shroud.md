@@ -6,7 +6,7 @@
     
 *   Radianting - sullen and depressed.
     
-*   Identity and individualism.
+*   Identity and individualism - self-identified otaku - hikikomori.
     
 
 ## Ne
@@ -20,7 +20,8 @@
 
 ## Si
 
-TBA
+*   Paranoia - often comes up with worst-case scenarios to justify not trying new things or engaging with the outside world.
+    
 
 ## Te
 
