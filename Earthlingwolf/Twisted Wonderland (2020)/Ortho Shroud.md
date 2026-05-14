@@ -16,6 +16,13 @@
 
 ## Fe
 
+*   Efficiency and organization.
+    
+*   Transmutable soul - Pinocchio-like themes.
+    
+*   Member of the Film Research Club - joined with the objective of better understanding human emotions through acting (_Fe+Ne_).
+    
+
 ## Si
 
 *   Weak _Si_ - no major examples.
