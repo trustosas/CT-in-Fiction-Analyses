@@ -17,3 +17,5 @@
 ## Fe
 
 ## Si
+
+*   Weak _Si_ - no major examples.
