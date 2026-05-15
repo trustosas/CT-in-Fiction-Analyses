@@ -20,6 +20,11 @@
 
 ## Si
 
+*   Interests: architecture (gargoyles) and archeology - exploring ruins and abandoned buildings.
+    
+*   Stagnation and technological retrogression.
+    
+
 ## Te
 
 *   Housewarden of Diasomnia - crowned prince of Briar Valley.
