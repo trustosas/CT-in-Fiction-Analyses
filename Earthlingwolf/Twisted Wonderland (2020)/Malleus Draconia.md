@@ -6,7 +6,9 @@
     
 *   Nobility and elegance.
     
-*   Idealism and pickiness/emotional palate.
+*   Idealism and independence.
+    
+*   Picky and opinionated.
     
 
 ## Ne
