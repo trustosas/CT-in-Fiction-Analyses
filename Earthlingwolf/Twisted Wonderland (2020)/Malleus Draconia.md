@@ -13,6 +13,11 @@
 
 ## Ne
 
+*   Childish and naive.
+    
+*   Escapism - tries to avoid reality through the creation of literal dreamworlds.
+    
+
 ## Si
 
 ## Te
