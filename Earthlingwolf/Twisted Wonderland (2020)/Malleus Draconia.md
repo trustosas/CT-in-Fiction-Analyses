@@ -10,6 +10,8 @@
     
 *   Picky and opinionated.
     
+*   Feminine presentation.
+    
 
 ## Ne
 
