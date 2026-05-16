@@ -2,9 +2,9 @@
 
 *   Prince.
     
-*   Idealism and purity.
+*   Idealism, nobility, and purity.
     
-*   Withholding - courteous, unflappable and stoic.
+*   Withholding - courteous, unflappable, and composed.
     
 
 ## Ne
