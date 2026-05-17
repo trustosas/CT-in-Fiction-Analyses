@@ -4,13 +4,18 @@
     
 *   Mind over body.
     
-*   Hierarchy, _Directive_ honesty, and shaming.
+*   _Directive_ honesty and shaming.
+    
+*   Social hierarchy and collective identity.
     
 
 ## Ni
+
+*   History and volumetric knowledge.
+    
 
 ## Se
 
 ## Ti
 
-*   Stubbornesss.
+*   Stubbornness and perfectionism.
