@@ -13,8 +13,13 @@
 
 *   History and volumetric knowledge.
     
+*   Sectarian (_Fe+Ni_) - overzealous and idolatrous.
+    
 
 ## Se
+
+*   Weak _Se_ - no major examples.
+    
 
 ## Ti
 
