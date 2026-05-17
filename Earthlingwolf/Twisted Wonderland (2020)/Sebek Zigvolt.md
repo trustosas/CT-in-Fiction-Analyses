@@ -8,6 +8,8 @@
     
 *   Social hierarchy and collective identity.
     
+*   Goal and achievement-oriented.
+    
 
 ## Ni
 
