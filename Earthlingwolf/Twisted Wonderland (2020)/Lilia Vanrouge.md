@@ -26,3 +26,9 @@
     
 
 ## Ne
+
+*   Puer Aeternus.
+    
+*   Interests: gaming and traveling - member of the Pop Music Club.
+    
+*   Prankster.
