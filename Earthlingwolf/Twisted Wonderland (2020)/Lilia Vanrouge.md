@@ -1,10 +1,21 @@
 ## Si
 
+*   Senex.
+    
+*   History and storytelling.
+    
+*   Philosophy and concil.
+    
+*   Nostalgia and collections.
+    
+*   Unique magic: Far Cry Cradle - gives him the power of psychometry.
+    
+
 ## Fe
 
 *   Vice-housewarden of Diasomnia.
     
-*   Land of Briar's General of the Right.
+*   Briarland's General of the Right.
     
 *   Coaching and mentorship.
     
