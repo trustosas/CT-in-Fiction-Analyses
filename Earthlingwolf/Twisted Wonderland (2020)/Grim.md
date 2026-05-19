@@ -1,6 +1,16 @@
 ## Se
 
+*   Trickster.
+    
+*   Gluttonous, impulsive, lazy, and childish.
+    
+*   Voltion and competitiveness.
+    
+
 ## Fi
+
+*   Vanity and self-absorption.
+    
 
 ## Te
 
