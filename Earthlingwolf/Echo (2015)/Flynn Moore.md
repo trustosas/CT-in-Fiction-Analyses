@@ -1,6 +1,6 @@
 *   Blunt and witty.
     
-*   Leadership and Politics.
+*   Showing care through management.
     
 *   Goal-oriented, structured, and decisive.
     
