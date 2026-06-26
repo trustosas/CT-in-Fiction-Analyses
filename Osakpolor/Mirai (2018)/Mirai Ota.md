@@ -4,4 +4,5 @@
 - Use of honorifics for her smaller brother, regardless of relative age due to time travel
 ## Fe
 - Serves as a guide for Kun, providing correction and emotional support
-- 
+## Alpha
+- Helps a Fi-centric Kun see the value of Collectivism: "When people "
