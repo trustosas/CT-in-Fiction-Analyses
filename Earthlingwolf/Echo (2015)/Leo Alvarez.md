@@ -1,9 +1,9 @@
-*   Leadership and Command - "We are a family" attitude.
+*   Leadership and Command - Possessiveness and Control.
     
-*   Collectivism and Tribalism.
+*   Collectivism and Tribalism - family loyalty.
     
 *   _Directive_ Violence and Manipulation.
     
-*   Nostalgia.
+*   Nostalgia - heavy attachment to specific places and relationships - Stagnation.
     
 *   Conservatism and Traditionalism.
