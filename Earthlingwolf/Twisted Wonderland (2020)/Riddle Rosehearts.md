@@ -21,12 +21,12 @@ modified: 2026-04-23T18:20:46+01:00
 
 *   Encyclopedic memory, especially for academic subjects - memorized all 810 rules of Heartslabyul.
     
-*   Traditionalist - enforces all of Heartslabyul's rules regardless of how obscure or inconsequential.
+*   Traditionalist - enforces all of Heartslabyul's rules, regardless of how obscure or inconsequential they are.
     
 
 ## Ne
 
-*   Minor _Ne_ Escapism - has an unconscious tendency to use self-delusion as a defense against unbearable realities.
+*   Weak _Ne_ - rarely tries new things on his own unless there is a pragmatic reason to do so.
     
 
 ## Fi
