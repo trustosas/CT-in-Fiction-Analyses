@@ -2,7 +2,7 @@
 
 *   Hardworking and determined - aims to become an honor student and police officer.
     
-*   Former delinquent - focus on _Directive_ violence, territorial conflicts, and strict adherence to hierarchy.
+*   Former delinquent - focuses on _Directive_ violence, territorial conflicts, and strict adherence to hierarchy.
     
 *   Transmutable soul - aims to reform himself through adhering to external standards of behavior and achievement.
     
@@ -25,4 +25,4 @@
 
 ## Ti
 
-*   Weak _Ti_ - favors meeting external standards over authenticity.
+*   _Ti_ Third-Person Self - while impulsive and reactive to immediate external events, often engages in impersonal self-critique when analyzing his own actions in hindsight.
