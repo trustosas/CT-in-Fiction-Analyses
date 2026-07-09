@@ -26,3 +26,5 @@
 ## Ti
 
 *   _Ti_ Third-Person Self - while impulsive and reactive to immediate external events, often engages in impersonal self-critique when analyzing his own actions in hindsight.
+    
+*   Self-crafting into an ideal (honor student).
