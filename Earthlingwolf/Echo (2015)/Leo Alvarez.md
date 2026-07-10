@@ -9,6 +9,16 @@
 
 ## Si
 
-*   Nostalgia - heavy attachment to specific places and relationships - Stagnation.
+*   Nostalgia - heavy attachment to Echo and his relationship with Chase - idealizes the past to the point of personal stagnation.
     
-*   Conservatism and Traditionalism.
+*   Conservatism and Traditionalism - abides by traditional ideas of family, community, and gender roles.
+    
+
+## Ne
+
+*   Escapism - mainly used for nostalgic maladaptive daydreaming.
+    
+
+## Ti
+
+*   Weak _Ti_ - no major examples.
