@@ -24,7 +24,7 @@
 
 *   Nihilism - claims that putting effort into things is pointless as fate is unchanging (_Ti+Ni_).
     
-*   Picky eater.
+*   Picky and opinionated.
     
 
 ## Se
