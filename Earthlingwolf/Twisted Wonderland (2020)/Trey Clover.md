@@ -25,6 +25,6 @@
 
 *   Interests: cooking - always on the lookout for new recipes to try out.
     
-*   Cunning and mischievous.
+*   Mischievous - has a unique sense of humor others tend to find odd.
     
-*   Adaptable - can change plans on the fly to deal with unforeseen problems or take advantage of new opportunities.
+*   Cunning and adaptable - skilled at changing plans on the fly to deal with unforeseen problems or take advantage of new opportunities.
