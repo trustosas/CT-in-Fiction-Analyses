@@ -22,11 +22,11 @@
 
 ## Ti
 
-*   Weak _Ti_ - no major examples.
+*   Holds himself to high standards.
     
 
 ## Se
 
-*   Interests: cooking and dancing - member of the Basketball Club.
+*   Interests: cooking, dancing, traveling - member of the Basketball Club.
     
 *   Trickster - cunning and resourceful.
