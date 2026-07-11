@@ -13,7 +13,7 @@
 
 *   Vice-housewarden of Scarabia.
     
-*   Coaching and mentorship.
+*   Etiquette and reputation.
     
 *   Glory and power-hungry.
     
@@ -22,7 +22,7 @@
 
 ## Ti
 
-*   Holds himself to high standards.
+*   Meticulous - high aesthetics/craftsmentship standards.
     
 
 ## Se
