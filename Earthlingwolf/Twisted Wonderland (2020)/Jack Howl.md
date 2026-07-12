@@ -1,6 +1,6 @@
 ## Ti
 
-*   Idealistic - has very strict personal principles and standards - "competition must be fair to be meaningful, a victory won through cheating, or shortcuts is unacceptable".
+*   Idealistic - has very strict personal principles and standards - "competition must be fair to be meaningful; a victory won through cheating or shortcuts is unacceptable".
     
 *   Stubbornness - inflexible and narrow-minded - refuses to bend his principles regardless of practicality
     
@@ -9,12 +9,12 @@
 
 ## Se
 
-*   Athletics and competitiveness - member of the Track & Field Club - spelldrive (basically quidditch) and winter sports.
+*   Athletics and competitiveness - member of the Track & Field Club - spelldrive and winter sports.
     
 
 ## Ni
 
-*   Weak Ni - no major examples.
+*   Long-term thinking, patience, and carefully paced improvement.
     
 
 ## Fe
