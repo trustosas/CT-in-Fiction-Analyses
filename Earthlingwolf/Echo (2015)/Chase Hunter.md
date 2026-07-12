@@ -14,9 +14,11 @@
 
 ## Ti
 
-*   Weak _Ti_ - occasionally will engage in third-person self-evaluation, but otherwise has a weak sense of identity and few strong interests or opinions - easily influenced by others.
+*   Weak _Ti_ - occasionally will engage in third-person self-evaluation, but otherwise has a weak sense of identity and few strong interests or opinions.
     
 
 ## Ne
 
-*   Escapism and distraction.
+*   Easy-going to the point of being a pushover - easily influenced by others' opinions and expectations.
+    
+*   Procrastination - fails to finish his project in most routes - frequently distracts himself from what troubles him by engaging in escapism and avoidance.
