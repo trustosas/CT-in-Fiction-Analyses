@@ -7,18 +7,16 @@
 *   Predictability and stability - focus on "maintaining the peace" through careful planning and preserving the status quo.
     
 
-## Te
+## Fe
 
-*   Vice-housenwarden of Heartslabyul.
+*   Vice-housenwarden of Heartslabyul - mentorship and teaching.
     
-*   Member of the Science Club - best subject: alchemy.
+*   _Adaptive_ - socially adaptable, diplomatic, and courteous.
     
 
-## Fi
+## Ti
 
 *   Reserved - strongly dislikes being the center of attention - downplays his talents and achievements.
-    
-*   Complacency and avoidance - enables Riddle's tyranny out of pity - inaction leads to issues spiraling out of control.
     
 
 ## Se
