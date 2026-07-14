@@ -10,4 +10,4 @@ Here, I was torn between Se+Fe and Ne+Je. But comparing the descriptions, Ne+Te 
 - Picks fights and contests she has no real shot at winning.
 - Still somehow passes her exams despite the chaos.
 
-There's probably more examples, but this is the overarching theme: a person fast enough to keep duct taping life as she goes.
+There's probably more examples, but this above captures the overarching theme: a person fast enough to keep duct taping life as she goes.
