@@ -1,4 +1,4 @@
-Here I was torn between Se+Fe and Ne+Fe. But once you compare the descriptions, Ne+Te is the one that actually fits best.
+Here I was torn between Se+Fe and Ne+Je. But once you compare the descriptions, Ne+Te is the one that actually fits best.
 
 **Ne+Fe (Social Clown)** This one doesn't really work for her. This dynamic is about joking around to bring people together, making everyone feel good, and easing tension in the group. The keyword here is *togetherness*, think of Osaka or Chiyo. Tomo's jokes are not built like that. She teases people to get a reaction out of them, even when it stings, like she does with Yomi. Her sense of fun comes at someone else's expense, not for the group's benefit.
 
@@ -10,4 +10,4 @@ Here I was torn between Se+Fe and Ne+Fe. But once you compare the descriptions, 
 - She picks fights and contests she has no real shot at winning.
 - She still somehow stumbles into passing her exams despite all the chaos she causes along the way.
 
-There's probably more examples, but you get the overarching idea.
+There's probably more examples, but you get the overarching idea. Duct taping life as she goes.
