@@ -4,7 +4,7 @@ Here, I was torn between Se+Fe and Ne+Je. But comparing the descriptions, Ne+Te 
 
 **Se+Fe (Persona-Sensitive Sensationalist):** Doesn't fit either. This type is polished and image conscious, Kagura (SeTi) fits better here. The keyword is *intent*, Betas manage how they come across and compete in a controlled way. Tomo is competitive, so it's a partial fit at best, but she's messy and unfiltered, and her competitiveness is often random and pointless, not calculated for status.
 
-**Ne+Te (Nerd & Scientist):** This fits her best, as long as . She comes up with plans, then gets distracted by her own tangents and blows them up herself:
+**Ne+Te (Nerd & Scientist):** This fits her best. She is someone who comes up with plans, (a lot of them,), then gets distracted by her own Ne tangents and blows them up herself:
 
 - Organizes a study session, derails it with a tangent about martial artist naming conventions.
 - Picks fights and contests she has no real shot at winning.
