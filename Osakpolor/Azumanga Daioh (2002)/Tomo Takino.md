@@ -4,7 +4,7 @@ Here I was torn between Se+Fe and Ne+Je. But comparing the descriptions, Ne+Te s
 This one doesn't really work for her. This type jokes around to bring people together, make everyone feel good, grease the wheels. (Think Osaka) Tomo's jokes aren't like that. She teases people to get a rise out of them, even when it stings, like with Yomi. Her fun comes at someone else's expense, not for the group's sake.
 
 **Se+Fe (Persona-Sensitive Sensationalist)**
-Doesn't fit either. This type is polished and image conscious. Kagura (SeTi) would better fit this category, to a degree. They manage how they come across and compete in a controlled, deliberate way. At best this is a partial fit; she's competitive. She's also a mess, has no filter, and her competitiveness is random and pointless half the time, not something she's calculating for status.
+Doesn't fit either. This type is polished and image conscious. The keyword hereKagura (SeTi) would better fit this category, to a degree. They manage how they come across and compete in a controlled, deliberate way. At best this is a partial fit; she's competitive. She's also a mess, has no filter, and her competitiveness is random and pointless half the time, not something she's calculating for status.
 
 **Ne+Te (Nerd & Scientist)**
 This is the one that actually fits best to me. She comes up with plans and schemes, then gets distracted by their own tangents and blows her own plans up herself. She:
