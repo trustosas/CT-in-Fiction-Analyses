@@ -2,18 +2,18 @@
 
 *   Founder and only member of the Mountain Lovers Club.
     
-*   Calculated persona - the perfect right-hand man - polite, composed, obedient, and competent.
+*   Calculated persona - the elegant gentleman - polite, composed, obedient, and competent.
     
 *   Stubborn and meticulous - very demanding in regard to things of personal significance.
     
-
-## Se
-
-*   Trickster.
+*   Idiosyncratic interests - pursues them regardless of others' opinions - mountaineering, tea brewing, terrariums.
     
-*   Mainly motivated by personal entertainment - dislikes predictability and harmony.
+
+## Ne
+
+*   Mainly motivated by personal entertainment - dislikes predictability and harmony - mischievous.
     
-*   Interest: mountaineering, camping, foraging, and cooking.
+*   Fantastical exploration - highly stimulated by possibilities - eager to learn new things.
     
 
 ## Ni
