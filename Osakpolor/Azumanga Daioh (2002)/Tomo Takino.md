@@ -1,0 +1,1 @@
+Here I was torn between Se+Fe and Ne+Je. But comparing the descriptions, Ne+Te seems the most logical.
