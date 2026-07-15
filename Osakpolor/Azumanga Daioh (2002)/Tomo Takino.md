@@ -1,6 +1,6 @@
 ## Ne
 - Impulse-driven, no inhibition of immediate desires (keys-in-the-brush incident, despite zero benefit to herself)
-- Constant motion, loud, performative — but burns out before completing what she starts
+- Constant motion, loud, performative, but burns out before completing what she starts
 ## Fe
 - Manufactures arbitrary contests/rivalries with people who have no real stake in them (races Sakaki, competes with Chiyo over age)
 - Delusionally egocentric — treats unrelated facts (being older) as personal victories
