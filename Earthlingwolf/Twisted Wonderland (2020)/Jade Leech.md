@@ -16,11 +16,11 @@
 *   Fantastical exploration - highly stimulated by possibilities - eager to learn new things.
     
 
-## Ni
+## Si
 
-*   Volumetric information: mountain facts, contract details, and blackmail material.
+*   Accumulates volumetric information - both for his personal interests and as required for his duties.
     
-*   Long-term thinking.
+*   Carefulness, planning, and forethought - rarely acts impulsively.
     
 
 ## Fe
