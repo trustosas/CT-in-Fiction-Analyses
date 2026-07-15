@@ -25,6 +25,8 @@
 
 ## Fe
 
-*   Vice-housewarden of Octavinelle.
+*   Vice-housewarden of Octavinelle - assistant manager of the Monstro Lounge.
     
-*   Manipulative - _Fe+Se_ Persuader.
+*   Manipulative - persuades through deception and intimidation.
+    
+*   Interests: Potionology and terrariums (attracted to the management aspect of the latter).
