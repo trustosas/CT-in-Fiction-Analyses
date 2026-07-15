@@ -1,12 +1,14 @@
 ## Ne
 - Impulse-driven, no inhibition of immediate desires (keys-in-the-brush incident, despite zero benefit to herself)
+- Constant motion, loud, performative — but burns out before completing what she starts (postures and yells more than she follows through)
 ## Fe
 - Manufactures arbitrary contests/rivalries with people who have no real stake in them (races Sakaki, competes with Chiyo over age)
 - Delusionally egocentric — treats unrelated facts (being older) as personal victories
+- Tolerates/invites physical retaliation (Shoryuken, uppercuts) as part of bonding (Medium Guardedness)
 
 
 
-- Constant motion, loud, performative — but burns out before completing what she starts (postures and yells more than she follows through)
+
 - Academically disinterested except when provoked by spite — studies _only_ to stay near/provoke Yomi, never for the material itself
 
 
