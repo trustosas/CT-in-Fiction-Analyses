@@ -10,7 +10,7 @@
 ## Alpha
 - Slow, quiet, daydreamy demeanor that runs against what people expect from someone nicknamed after the Osaka region
 - Doesn't fight the nickname even though she privately dislikes it, just lets it override her real name over time
-- Has her calmest, closest bond with Chiyo, (both are Alphasbuilt on shared gentleness and curiosity rather than shared interests
+- Has her calmest, closest bond with Chiyo, (both are Alphas) built on shared gentleness and curiosity rather than shared interests
 - Gets pulled into Tomo's chaotic schemes passively, but sticks with the "Knuckleheads" study group out of real solidarity
 - Nearly attacks her sleeping teacher with a kitchen knife while trying to grab a frying pan instead, then reacts to the aftermath with total flatness ("You woke up by yourself. Then I failed...")
 - Generally unbothered, calm, and slow to react even when things around her get chaotic or tense
