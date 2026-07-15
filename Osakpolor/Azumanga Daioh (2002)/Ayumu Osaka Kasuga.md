@@ -1,6 +1,6 @@
 ## Ti
 - Gets weirdly rigid and stern over small structural things, like chopsticks not splitting evenly
-- Says blunt things that cut straight through everyone else's social tact, like pointing out Yomi and [Tomo](https://ct-in-fiction.vercel.app/animation/azumanga-daioh/tomo-takino) don't have boyfriends or directly asking Kaorin if she's gay
+- Says blunt things that cut straight through everyone else's social tact, like pointing out [Yomi](https://ct-in-fiction.vercel.app/animation/azumanga-daioh/koyomi-mizuhara) and [Tomo](https://ct-in-fiction.vercel.app/animation/azumanga-daioh/tomo-takino) don't have boyfriends or directly asking Kaorin if she's gay
 ## Ne
 - Zones out mid-conversation to track tiny physical details like eye floaters or dust in the air
 - Takes idioms literally and mentally pictures the mechanics of things like "raining cats and dogs"
