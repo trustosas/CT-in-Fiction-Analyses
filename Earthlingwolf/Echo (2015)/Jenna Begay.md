@@ -4,6 +4,14 @@
     
 *   In college for psychology, specifically aiming to become a neuroscientist to understand the complexities of the mind, explicitly claims to have no plans on going into counseling or therapy.
     
-*   Pranks and tricks.
+
+## Se
+
+*   Prankster.
     
+*   Competitiveness and volition.
+    
+
+## Ti
+
 *   Detached analysis - reflections on identity and ideals.
