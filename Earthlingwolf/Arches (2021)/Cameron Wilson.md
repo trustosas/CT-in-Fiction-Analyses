@@ -4,21 +4,21 @@
     
 *   Identity - highly self-critical - becomes unreasonably stubborn after coming to believe that Echo is the key to a deeper truth about himself.
     
-*   Self-expression - music (guitar, piano) - focus on mastery of craft and elegant simplicity.
+*   Self-expression - music: guitar and piano - focus on mastery of craft and elegant simplicity.
     
 
 ## Se
 
-*   Creativity and Humor
+*   Creativity (music).
+    
+*   Former drug addict.
     
 
 ## Ni
 
-*   History and Storytelling
+*   Frames his life in a narrative of archetypes and cyclical time - his parents had "the most typical love story for people like them": initial hope to break the cycle of abuse and poverty, followed by tragedy due to mental illness and drug abuse - fears being doomed to become like his mother.
     
-*   Cyclical Time
-    
-*   _Ni_ Shaman Archetype
+*   _Ni_ Shaman - psychic powers: retrocognition, precognition, and clairvoyance.
     
 
 ## Fe
