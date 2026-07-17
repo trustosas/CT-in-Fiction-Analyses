@@ -2,7 +2,7 @@
 
 *   Idealism - polite, altruistic, devoted to his faith.
     
-*   _Seelie_ innocent radiation - maintains cheerful demeanor and unique interests, despite conflicting with social environment.
+*   Identity - maintains an earnest, cheerful demeanor despite adversity (crass and cynical social group, lack of shared interest, hostility towards beliefs).
     
 *   Hypersensitivity - fear and crying under moderate amounts of stress - dissociation under extreme stress.
     
