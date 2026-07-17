@@ -1,10 +1,12 @@
 ## Fi
 
-*   Idealism and pickiness
+*   Idealism - polite, altruistic, devoted to his faith.
     
-*   Hypersensitivity and withdrawn.
+*   _Seelie_ innocent radiation - maintains cheerful demeanor and unique interests, despite conflicting with social environment.
     
-*   Seelie innocent radiance.
+*   Hypersensitivity - fear and crying under moderate amounts of stress - dissociation under extreme stress.
+    
+*   Pickiness, perfectionism, and meticulousness.
     
 
 ## Se
