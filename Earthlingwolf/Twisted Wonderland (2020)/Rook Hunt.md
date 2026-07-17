@@ -13,16 +13,18 @@
 
 *   Thrill-seeking and athletics (hunting).
     
-*   Creativity (art and poetry) and aesthetics - .
+*   Creativity and aesthetics - art and poetry.
     
-*   Thirst for novelty - loves to learn new things - mass data absorption (movies, musicals, and anything related to either Vil or Neige).
+*   Thirst for novelty - movies, TV, theater, music, and science experimentation.
     
 
 ## Ni
 
 *   Advice and guidance.
     
-*   Volumetric knowledge.
+*   Frequently frames things through poetic synbolism/metaphors.
+    
+*   Convergent worldview - everything converges into a few living principles such as beauty (_Fi+Ni_)
     
 
 ## Te
