@@ -11,13 +11,12 @@ Dumped a boyfriend over a nickname pun tied to her weight insecurity, showing ho
 Secretly writes anonymous letters to a radio host about her failed diets rather than airing that struggle openly
 Highest "Hand Loss" count is split across emotional, physical, and cognitive triggers, more evenly than anyone else in the cast, meaning her fight for control runs on several fronts at once, not just one
 Tsundere-leaning attachment to Tomo, relying on her to shake off her own melancholy even while resenting the noise
-Sentimental and quietly anxious about the group drifting apart after graduation
 Rewarded in-game for disciplined, systematic play (extra points for careful discards after declaring ready)
 Excels at fast, precise, spatially calculated tasks under time pressure
-In fanon, recast as a strategist and tactician, someone who plans and executes precisely under pressure, and who is reserved until pulled into social situations by more outgoing people
-Uses her literary/musical knowledge as a specialized, almost professional skill in other contexts
 
 ## Te+Si
 Loyal and quietly supportive to people and causes she's attached to
+Uses her literary/musical knowledge as a specialized, almost professional skill in other contexts
 
 ## Delta
+Sentimental and quietly anxious about the group drifting apart after graduation
