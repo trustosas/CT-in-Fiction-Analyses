@@ -9,7 +9,6 @@
 - Excels at fast, precise, spatially calculated tasks under time pressure
 ## Te+Si
 - Loyal and quietly supportive to people and causes she's attached to
-- Uses her literary/musical knowledge as a specialized, almost professional skill in other contexts
 - Studious, organized, ranked 2nd in class academically, dedicated to school
 ## Delta
 - Sentimental and quietly anxious about the group drifting apart after graduation
