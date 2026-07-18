@@ -10,6 +10,6 @@
 ## Te+Si
 - Loyal and quietly supportive to people and causes she's attached to
 - Studious, organized, ranked 2nd in class academically, dedicated to school
+- Secretly studies guidebooks before class trips while acting indifferent in public
 ## Delta
 - Sentimental and quietly anxious about the group drifting apart after graduation
-- Secretly studies guidebooks before class trips while acting indifferent in public
