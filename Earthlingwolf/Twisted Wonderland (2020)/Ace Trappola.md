@@ -1,7 +1,3 @@
----
-created: 2026-04-23T18:32:22+01:00
-modified: 2026-04-23T18:32:35+01:00
----
 ## Ne
 
 *   Irresponsible - always scheming for ways to avoid work or responsibilities - escapism.
