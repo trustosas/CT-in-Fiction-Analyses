@@ -9,11 +9,16 @@
 
 ## Ni
 
+*   Obsessed with finding the truth to the death of Sydney - convinced of foul play despite lacking concrete evidence.
+    
+
 ## Se
 
-*   Sensuality and thrills.
+*   Sensuality and thrills - deals with stress and boredom through promiscuity and unconventional sexual behavior.
     
-*   Selective rebelliousness.
+*   Banter and humor - heavy use of _Te_ sarcasm.
+    
+*   Selective rebelliousness - resents perceived attacks on his agency (_Te+Se_).
     
 
 ## Fi
