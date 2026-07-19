@@ -16,7 +16,7 @@
 
 *   Sensuality and thrills - deals with stress and boredom through promiscuity and unconventional sexual behavior.
     
-*   Banter and humor - heavy use of _Te_ sarcasm.
+*   Banter and humor - crudeness and vulgarity.
     
 *   Selective rebelliousness - resents perceived attacks on his agency (_Te+Se_).
     
