@@ -4,7 +4,7 @@
     
 *   Pickiness and perfectionism - only in areas of personal significance.
     
-*   Radianting - sullen and depressed.
+*   Emotional radiation (sullen and depressed) - constant complaining when forced out of comfort zone.
     
 *   Identity and individualism - self-identified otaku - hikikomori.
     
@@ -30,3 +30,5 @@
 *   Programming and engineering - _Te+Ne_ Inventor.
     
 *   Bluntness and avalanching speech.
+    
+*   Often uses efficiency to justify subjective preferences.
