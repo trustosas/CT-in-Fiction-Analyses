@@ -13,7 +13,7 @@
 
 *   Interests: gaming, anime, and idols - member of the Board Game Club.
     
-*   Tinkering.
+*   Frames things through video games - people are given "party roles"; tasks and responsibilities become "quests".
     
 *   Casual language - constant use of internet/gamer slang.
     
