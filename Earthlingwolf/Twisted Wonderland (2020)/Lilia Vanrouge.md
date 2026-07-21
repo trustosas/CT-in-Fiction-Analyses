@@ -22,7 +22,7 @@
 
 ## Ti
 
-*   Weak _Ti_ - no major examples.
+*   Authentic self-expression - gender/age non-conformity.
     
 
 ## Ne
