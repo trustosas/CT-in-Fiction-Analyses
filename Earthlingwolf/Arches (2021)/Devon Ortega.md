@@ -1,5 +1,10 @@
 ## Te
 
+*   Mechanics - profession: engineer - often thinks in terms of engineering principles (torque; cascading failures).
+    
+*   Responsibility and organization - displays his care toward Cameron through managing his physical needs - doesn't use emotional handling in his caregiving, often leading to conflict between the two.
+    
+
 ## Ni
 
 *   Caution, skepticism, and foresight.
