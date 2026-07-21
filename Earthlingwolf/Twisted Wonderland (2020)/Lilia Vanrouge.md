@@ -1,12 +1,8 @@
 ## Si
 
-*   Senex.
+*   Senex - an elder who uses his encyclopedic historical knowledge to advise and guide others.
     
-*   History and storytelling.
-    
-*   Philosophy and concil.
-    
-*   Nostalgia and collections.
+*   Nostalgia - accumulated a vast collection of souvenirs from his travels - when stuck in a lotus-eater machine, he relives the happiest moment of his life (Malleus' birth), not just the event in isolation but all the hardships that led to that moment (the human-fey war; the death of Maleanor; being dishonorably discharged; desperately searching for a way to make Malleus hatch).
     
 *   Unique magic: Far Cry Cradle - gives him the power of psychometry.
     
@@ -27,8 +23,8 @@
 
 ## Ne
 
-*   Puer Aeternus.
+*   Puer Aeternus - childlike energy even at old age - eager to learn things and have fun.
+    
+*   Lively, curious, spontaneous, and adaptable - jokes and pranks
     
 *   Interests: gaming and traveling - member of the Pop Music Club.
-    
-*   Prankster.
