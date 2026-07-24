@@ -9,7 +9,7 @@
 
 ## Fi
 
-*   Identity and Individualism - Embodied Self.
+*   Character Arc: self-acceptance, identity, and independence.
     
 
 ## Te
