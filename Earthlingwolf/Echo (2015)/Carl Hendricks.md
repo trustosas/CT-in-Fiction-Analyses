@@ -1,10 +1,10 @@
 ## Ne
 
-*   Playfulness and Humor.
+*   Carefree and easygoing - humorous banter, pranks, and jokes.
     
-*   Escapism and Distraction.
+*   Escapism and Distraction - deals with his depression and social anxiety through avoidance and hedonism (video games; weed; overeating).
     
-*   Creativity and Art.
+*   Creativity and Art - in the _Glory Hounds_ timeline, he goes on to become an accomplished comic book writer.
     
 
 ## Fi
