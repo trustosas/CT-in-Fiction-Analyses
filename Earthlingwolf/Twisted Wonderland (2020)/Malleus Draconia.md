@@ -1,8 +1,12 @@
 ## Si
 
-*   Interests: architecture (gargoyles) and archeology - exploring ruins and abandoned buildings.
+*   Patience and traditionalism - everything is understood within broader temporal contexts.
     
-*   Stagnation and technological retrogression.
+*   Study and preparation - often engages in research both out of personal curiosity and also to learn how to properly complete tasks.
+    
+*   Interests: history, sculptures, gargoyles, old books, ancient buildings - derives great meaning from understanding the past and how things change over time.
+    
+*   Stagnation and nostalgia - struggles to adapt to technological advances - strongly resistant to big life changes.
     
 
 ## Fe
