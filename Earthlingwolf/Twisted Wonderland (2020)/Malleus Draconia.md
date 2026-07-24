@@ -1,10 +1,3 @@
-## Ne
-
-*   Childish and naive.
-    
-*   Escapism - tries to avoid reality through the creation of literal dreamworlds.
-    
-
 ## Si
 
 *   Interests: architecture (gargoyles) and archeology - exploring ruins and abandoned buildings.
@@ -26,3 +19,10 @@
 *   Courtesy, nobility, and elegance - picky and meticulous over subjects of personal importance.
     
 *   Idiosyncratic interests and gender non-conformity.
+    
+
+## Ne
+
+*   Open to new experiences when they present themselves, but seldom proactively chases novelty.
+    
+*   Escapism - tries to avoid reality through the creation of literal dreamworlds.
