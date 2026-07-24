@@ -27,6 +27,8 @@
 *   Stagnation and technological retrogression.
     
 
-## Te
+## Fe
 
 *   Housewarden of Diasomnia - crowned prince of Briar Valley.
+    
+*   Strict adherence to social etiquette - yet he's remarkably unskilled at social handling (possibly on the Autism spectrum).
