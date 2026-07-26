@@ -18,7 +18,7 @@
 
 ## Fe
 
-*   Socially savvy and manipulative (_Fe+Se Persuader_).
+*   Socially savvy and manipulative.
     
 *   Planning and leadership skills - functions as the unofficial second vice-housewarden of Heartslabyul.
     
