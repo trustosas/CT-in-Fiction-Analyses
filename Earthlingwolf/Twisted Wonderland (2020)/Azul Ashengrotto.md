@@ -20,11 +20,9 @@
 
 ## Se
 
-*   Trickster.
-    
 *   Member of the Board Games Club - prefers strategy-based games over luck-based ones.
     
-*   Cunning and competitive.
+*   Cunning and opportunistic - strongly prefers to plan and prepare beforehand; however, he is skilled at seizing opportunities and adapting on the fly when he has to.
     
 
 ## Fi
