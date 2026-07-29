@@ -11,9 +11,11 @@
 
 ## Ni
 
-*   Caution and foresight - always plan multiple steps ahead - doesn't act until the odds are in his favor - heavily dislikes relying on luck.
+*   Long-term thinking and predictions - always plans multiple steps ahead - heavily dislikes relying on chance.
     
-*   Volumetric knowledge - contract details and blackmail material.
+*   Always goes out of his way to research and learn as much as he can about an experience or activity before engaging.
+    
+*   Holistic meritocratic philosophy (_Te+Ni_) - "everything has a price, all debts must be repaid".
     
 
 ## Se
