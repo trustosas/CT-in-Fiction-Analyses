@@ -4,9 +4,9 @@
     
 *   Housewarden of Octavinnelle - owner and manager of the Monstro Lounge.
     
-*   Business-minded and hard-working.
+*   Interests: business, economics, and contracts - even during his leisure time, he is always attentive to opportunities to better his business (_Te+Se_).
     
-*   Success-driven and strategic.
+*   Pragmatic, hard-working, goal-oriented, and strategic.
     
 
 ## Ni
