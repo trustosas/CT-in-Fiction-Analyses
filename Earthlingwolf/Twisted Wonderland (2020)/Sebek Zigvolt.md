@@ -9,18 +9,20 @@
 *   Goal-oriented, achievement-oriented, structured, and responsible.
     
 
-## Ni
+## Si
 
-*   History and volumetric knowledge.
+*   Interests: history and literature - avid reader (volumetric knowledge).
     
-*   Sectarian (_Fe+Ni_) - overzealous and idolatrous.
+*   Preparation and foresight - does in-depth research before engaging in new experiences with a focus on social conduct and proper execution.
     
 
-## Se
+## Ne
 
-*   Weak _Se_ - no major examples.
+*   Weak _Ne_ - no major examples.
     
 
 ## Ti
 
 *   Self-crafting into the perfect retainer for Malleus - holds himself to extremely high perfectionistic standards of grooming, conduct, and competence.
+    
+*   Stubborn adherence to personal standards and beliefs despite frequent criticism from others.
