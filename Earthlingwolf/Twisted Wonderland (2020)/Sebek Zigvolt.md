@@ -1,14 +1,12 @@
 ## Fe
 
-*   Knight.
+*   Mind over body - overcoming his limitations through effort and discipline.
     
-*   Mind over body.
+*   Transmutable Soul - extremely driven by his own self-improvement - quick to condemn and correct conduct he disapproves of - frequent use of _Directive_ shaming.
     
-*   _Directive_ honesty and shaming.
+*   Attentive to hierarchy, proper conduct, and social roles - defines himself by his role as Malleus retainer.
     
-*   Social hierarchy and collective identity.
-    
-*   Goal and achievement-oriented.
+*   Goal-oriented, achievement-oriented, structured, and responsible.
     
 
 ## Ni
