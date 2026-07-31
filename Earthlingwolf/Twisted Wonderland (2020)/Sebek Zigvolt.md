@@ -23,4 +23,4 @@
 
 ## Ti
 
-*   Stubbornness and perfectionism.
+*   Self-crafting into the perfect retainer for Malleus - holds himself to extremely high perfectionistic standards of grooming, conduct, and competence.
