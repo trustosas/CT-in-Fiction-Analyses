@@ -18,7 +18,7 @@
 
 ## Ni
 
-*   Weak _Ni_ - no major examples.
+*   Patience and long-term planning - there are no shortcuts to success.
     
 
 ## Fe
