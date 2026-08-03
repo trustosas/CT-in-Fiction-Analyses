@@ -2,9 +2,9 @@
 
 *   Founder and leader of the Film Research Club.
     
-*   Identity and individualism - feminine presentation and open defiance of gender roles.
+*   Identity and authenticity - feminine presentation and open defiance of gender roles.
     
-*   Idealism - no effort is too much in his unending pursuit of beauty.
+*   Idealism - unending pursuit of beauty, elegance, and self-refinement.
     
 *   Extremely high standards for himself and others.
     
@@ -13,7 +13,7 @@
 
 ## Se
 
-*   Acting and aesthetics - modeling, fashion, and makeup.
+*   Interests: Acting, modeling, dancing, fashion, cosmetology.
     
 
 ## Ni
