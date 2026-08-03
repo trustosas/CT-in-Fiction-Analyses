@@ -27,6 +27,6 @@
     
 *   Housewarden of Pomefiore.
     
-*   Film directing and potionology (chemistry) - makes homebrew cosmetics.
+*   Interest: Filmmaking (directing and producing) and potionology (chemistry) - makes homebrew cosmetics.
     
-*   Coaching and willpower - respects those who put in strenuous effort towards their goals - pushes his charges towards self-improvement.
+*   Coaching and willpower - respects those who put in strenuous effort towards their goals - pushes both himself and his charges towards constant self-improvement.
