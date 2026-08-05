@@ -25,4 +25,4 @@
 
 ## Ni
 
-*   Long-term thinking.
+*   Caution and foresight - constantly keeps his long-term prospects in mind - risk-taking is strategic and calculated, never impulsive.
