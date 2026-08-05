@@ -2,11 +2,11 @@
 
 *   Trickster.
     
-*   Cunning and laid-back.
+*   Easygoing and laid-back demeanor - teasing, jokes, and humor.
     
-*   Vitality and volition - member of the Spelldrive Club (basically quidditch) - parkour.
+*   Interests: member of the Spelldrive Club - eager to learn any practical skill.
     
-*   Resourceful and opportunistic.
+*   Adaptable, opportunistic, cunning, and resourceful.
     
 
 ## Fi
