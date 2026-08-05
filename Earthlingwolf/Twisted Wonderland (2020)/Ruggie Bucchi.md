@@ -11,16 +11,16 @@
 
 ## Fi
 
-*   Strong sense of solidarity towards his community.
+*   Weak _Fi_ - always prioritizes profits and self-preservation over moral principles or personal standards.
     
 
 ## Te
 
 *   The unofficial vice-housewarden of Savanaclaw.
     
-*   Diligent - lists "working part-time jobs" as a hobby.
+*   Diligent and entrepreneurial- lists "working part-time jobs" as a hobby - constantly negotiating, bartering, saving, investing.
     
-*   Pragmatic - values results over principles -"pride doesn't fill the stomach".
+*   Pragmatic and industrious - every opportunity is turned into profit (_Te+Se_).
     
 
 ## Ni
