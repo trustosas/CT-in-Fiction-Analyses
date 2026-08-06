@@ -1,10 +1,8 @@
 ## Se
 
-*   Trickster.
+*   Bold, competitive, energetic, improvisational, thrill-seeking, sometimes reckless.
     
-*   Boldness and rebellion - vitality and volition.
-    
-*   Member of the Spelldrive Club (basically quidditch) - athletics and competitiveness.
+*   Interests: Blastcycles, action movies, athletics, rebellious aesthetics - Member of the Spelldrive Club.
     
 
 ## Ti
@@ -21,4 +19,4 @@
 
 ## Ni
 
-*   Strong cultural connection and pride for his hometown.
+*   Strong cultural connection and pride for his hometown and its traditions - furthering his education on potion-making to aid in his hometown's preservation.
