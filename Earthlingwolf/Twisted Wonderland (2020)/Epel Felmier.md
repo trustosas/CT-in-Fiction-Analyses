@@ -9,12 +9,14 @@
 
 ## Ti
 
-*   Strong sense of identity - refuses to be changed by others.
+*   Strong sense of identity - stubbornly refuses to be changed by others or give up his ideals - yearns to be his authentic self while trapped in the stifling environment of Pomefiore.
+    
+*   Internal standards - everything is measured based on his idea of coolness and toughness - dislikes not meeting or being forced to go against said standards.
     
 
 ## Fe
 
-*   Adherence to traditional gender norms - dislikes his feminine appearance and delicate frame - is fixated on the idea of becoming "strong" in a traditionally masculine way.
+*   Self-improvement focused on strength and traditionally masculine social dominance - _Directive_ Violence.
     
 
 ## Ni
