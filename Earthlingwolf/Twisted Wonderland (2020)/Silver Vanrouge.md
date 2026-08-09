@@ -2,14 +2,18 @@
 
 *   Prince.
     
-*   Idealism, nobility, and purity.
+*   Idealism and nobility - filial piety, gratitude and hope - primarily motivated by staying true to his ideals.
     
-*   Withholding - courteous, unflappable, and composed.
+*   Earnest and idiosyncratic - often percieved as odd and inscrutable by others.
+    
+*   Courteous, unflappable, humble, and composed.
+    
+*   Highly self-critical - holds himself to high standards and refuses to make excuses for percieved failures.
     
 
 ## Ne
 
-*   Optimistic to the point of naivety and airheadedness.
+*   Optimistic, naive, and airheaded.
     
 *   Unique magic: Meet in a Dream - allows him to dreamwalk.
     
