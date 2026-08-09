@@ -23,6 +23,6 @@
 
 *   Knight.
     
-*   Mind over body.
+*   Mind over body - strong emphasis on hard work, discipline, and overcoming limitations.
     
-*   Diplomat (_Fe+Si_).
+*   Diplomacy (_Fe+Si_) - strong believer in mutual understanding and cooperation between different cultures.
