@@ -9,7 +9,7 @@
 
 ## Fi
 
-*   Very resistant to being defined or directed by other people - values his relationship with Chase due to him being the only person not trying to "fix" him, at least initially.
+*   Very resistant to being defined or directed by other people - values his relationship with Chase due to him being the only person not trying to "fix" him, instead allowing him to be his authentic self, at least initially.
     
 *   Character Arc: self-acceptance, identity, and independence.
     
