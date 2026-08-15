@@ -21,4 +21,4 @@
 
 ## Si
 
-*   Weak _Si_ - no major examples.
+*   Stagnation and inertia.
